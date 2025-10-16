@@ -26,3 +26,8 @@ Someone, or something, had arrived.
 @Wiktor <br>
 The door creaked open without a sound.
 Cold air slipped inside, carrying the scent of rain and rust.
+
+
+@Zivile <br>
+Suddenly, there was complete silence.
+A dark figure appeared in the doorway.
