@@ -18,7 +18,8 @@ An unpredictable masterpiece stitched together from many minds.
 Write something to continue the story
 
 ------------------
-@Amine
-It was quiet, until the light in the window blinked once.  
+@Amine␣␣
+It was quiet, until the light in the window blinked once.
 Someone, or something, had arrived.
+
 
