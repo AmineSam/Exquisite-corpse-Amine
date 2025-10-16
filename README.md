@@ -7,7 +7,7 @@ A collaborative creation where each contributor adds a piece — without seeing 
 ## 🌙 What Is This?
 
 **Exquisite Corpse** is a surrealist-inspired collaboration game.  
-Each participant contributes a **section of a story, image, or code** —  
+Each participant contributes a **section of a story** —  
 but can only see a small fragment of what came before.
 
 The result?  
