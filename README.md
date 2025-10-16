@@ -21,7 +21,3 @@ Write something to continue the story
 @Amine <br>
 It was quiet, until the light in the window blinked once.
 Someone, or something, had arrived.
-
-@Wiktor 
-The door creaked open, spilling cold air into the room.
-Footsteps echoed, slow and deliberate, on the wooden floor.
