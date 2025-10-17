@@ -31,3 +31,7 @@ Cold air slipped inside, carrying the scent of rain and rust.
 @Zivile <br>
 The dark figure crawled into the room.  
 A whispering, creaking voice waved through the floor, begging for air.
+
+@Brigi <br>
+From beneath the floorboards came a rhythmic tapping—impatient, deliberate.
+The room held its breath, waiting for the next intrusion.
