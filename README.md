@@ -36,4 +36,8 @@ A whispering, creaking voice waved through the floor, begging for air.
 @Brigi <br>
 From beneath the floorboards came a rhythmic tapping—impatient, deliberate.
 The room held its breath, waiting for the next intrusion.
+@welde <br>
+The lights flickered as if something had just entered. 
+The figure stopped and looked around slowly.  
+It felt like the walls were holding their breath.  
 
