@@ -67,7 +67,8 @@ The light burst outward, swallowing sound and shape alike.
 When it dimmed, the figure was gone- but the tapping beneath the floor had started again.
 
 
-
+@Zivile <br>
+A cold shiver ran down my spine as the echoes of the tapping grew louder, more deliberate. Shadows danced along the walls, though no one was there to cast them.
 
 
 
