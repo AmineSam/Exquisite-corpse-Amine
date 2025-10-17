@@ -76,7 +76,8 @@ When it dimmed, the figure was gone- but the tapping beneath the floor had start
 A cold shiver ran down my spine as the echoes of the tapping grew louder, more deliberate. Shadows danced along the walls, though no one was there to cast them.
 
 
-
+@Brigi <br>
+I took a step back, but the floor felt soft—like something beneath it was shifting, breathing. Then, from the darkest corner of the room, a voice whispered “You let him out.”
 
 
 
