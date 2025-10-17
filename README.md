@@ -29,9 +29,5 @@ Cold air slipped inside, carrying the scent of rain and rust.
 
 
 @Zivile <br>
-Suddenly, there was complete silence.
-A dark figure appeared in the doorway.
-
-@Zivile <br>
 The dark figure crawled into the room.  
 A whispering, creaking voice waved through the floor, begging for air.
