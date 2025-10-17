@@ -50,3 +50,17 @@ The figure tilted its head, listening, as the shadows seemed to move closer.
 @Wiktor <br>
 The hum fractured into sharp, metallic whispers that circled the room like blades. 
 The figure reached out—and the walls finally exhaled.
+
+@Zivile 
+The figure revealed his face, which was shocking.
+It was furious and full of rage.
+
+
+
+
+
+
+
+
+
+
