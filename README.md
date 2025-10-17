@@ -84,11 +84,3 @@ I took a step back, but the floor felt soft—like something beneath it was shif
 
 Each sound made the room feel colder.  
 Then, the figure spoke in a soft, broken voice.
-
-@Amine <br>
-Then, in the silence that followed, the house itself seemed to whisper a single word — a name none of them had ever spoken, yet all somehow knew.
-
-
-
-
-
