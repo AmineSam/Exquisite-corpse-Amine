@@ -62,6 +62,9 @@ With a sudden roar, the figure slammed his hand against the nearest wall, and th
 @welde <br>
 It felt like the walls were holding their breath.  
 
+@wiktor <br>
+The light burst outward, swallowing sound and shape alike.
+When it dimmed, the figure was gone- but the tapping beneath the floor had started again.
 
 
 
