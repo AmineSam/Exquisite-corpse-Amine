@@ -46,3 +46,7 @@ It felt like the walls were holding their breath.
 @Amine <br>
 Then, a faint hum began to rise — low at first, then swelling like a chorus of trapped voices.
 The figure tilted its head, listening, as the shadows seemed to move closer.
+
+@Wiktor <br>
+The hum fractured into sharp, metallic whispers that circled the room like blades. 
+The figure reached out—and the walls finally exhaled.
