@@ -80,4 +80,10 @@ A cold shiver ran down my spine as the echoes of the tapping grew louder, more d
 I took a step back, but the floor felt soft—like something beneath it was shifting, breathing. Then, from the darkest corner of the room, a voice whispered “You let him out.”
 
 
+@welde <br>
+
+Each sound made the room feel colder.  
+Then, the figure spoke in a soft, broken voice.
+
+
 
