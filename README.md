@@ -85,3 +85,8 @@ I took a step back, but the floor felt soft—like something beneath it was shif
 Each sound made the room feel colder.  
 Then, the figure spoke in a soft, broken voice.
 
+
+@Amine <br>
+Its words crawled into my ears like insects, each syllable trembling with grief and rage. 
+I realized then—the voice wasn’t warning me; it was blaming me.
+
