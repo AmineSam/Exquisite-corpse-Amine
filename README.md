@@ -55,6 +55,9 @@ The figure reached out—and the walls finally exhaled.
 The figure revealed his face, which was shocking.
 It was furious and full of rage.
 
+@Brigi <br>
+With a sudden roar, the figure slammed his hand against the nearest wall, and the entire room shuddered like a living thing in pain. From the cracks that spread outward, a blinding light began to seep through—pulsing, alive, and watching.
+
 
 
 
