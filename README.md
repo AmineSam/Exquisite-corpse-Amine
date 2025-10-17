@@ -57,6 +57,8 @@ It was furious and full of rage.
 
 @Brigi <br>
 With a sudden roar, the figure slammed his hand against the nearest wall, and the entire room shuddered like a living thing in pain. From the cracks that spread outward, a blinding light began to seep through—pulsing, alive, and watching.
+
+
 @welde <br>
 It felt like the walls were holding their breath.  
 
